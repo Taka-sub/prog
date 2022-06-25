@@ -17,7 +17,7 @@
 20220624 | [エロ医師 清純ドエロ・綾乃～漲る好奇芯～](http://www.poro.cc/product/erodoctor_03/petit_erodoctor_03_point.html) | 待高压
 20220624 | [＃今までで一番良かったセックス THE ANIMATION 第2巻](https://www.pinkpineapple.co.jp/detail.php?cid=4&did=2337) | 待高压
 20220624 | [＃今までで一番良かったセックス THE ANIMATION 第1巻](https://www.pinkpineapple.co.jp/detail.php?cid=4&did=2335) | 待高压
-20220624 | [OVA パンデミック](http://mmdia.net/#widget-page-474) | 待高压
+20220624 | [OVA パンデミック](http://mmdia.net/#widget-page-474) | 待翻译
 20220624 | [J<span title="K">〇</span>限界交尾 ～合意挿入でバチバチ肉穴化～ 第1話 性活部へようこそ](https://www.mediabank.co.jp/product.php?model=KNB-M004) | 待高压
 20220617 | [オタクに優しいギャルとか、巨乳の幼なじみとか。 2 \[ふみひこ\]](https://www.mediabank.co.jp/product.php?model=QNB-M107) | [可获取](https://sukebei.nyaa.si/view/3670772)
 20220603 | [OVA巨乳女戦士・土下座<span title="催眠">○○</span> ＃2](https://www.lune-soft.jp/ova/24588) | [可获取](https://sukebei.nyaa.si/view/3660317)
