@@ -1,6 +1,6 @@
-# 未完成
+# 清单
 
-作品发布日 | 作品名 | 制作进度
+发布日 | 作品名 | 制作进度
 | - | - | -:
 20220729 | [同級生リメイク THE ANIMATION 第1巻](https://www.pinkpineapple.co.jp/detail.php?did=2331&cid=4) | 待片源
 20220729 | [聖<span title="奴隷">○○</span>学園2 ～後編～ 剥奪された権力](https://www.mediabank.co.jp/product.php?model=GBR-027) | 待片源
@@ -19,6 +19,9 @@
 20220624 | [＃今までで一番良かったセックス THE ANIMATION 第1巻](https://www.pinkpineapple.co.jp/detail.php?cid=4&did=2335) | 待高压
 20220624 | [OVA パンデミック](http://mmdia.net/#widget-page-474) | 待高压
 20220624 | [J<span title="K">〇</span>限界交尾 ～合意挿入でバチバチ肉穴化～ 第1話 性活部へようこそ](https://www.mediabank.co.jp/product.php?model=KNB-M004) | 待高压
+20220617 | [オタクに優しいギャルとか、巨乳の幼なじみとか。 2 \[ふみひこ\]](https://www.mediabank.co.jp/product.php?model=QNB-M107) | [可获取](https://sukebei.nyaa.si/view/3670772)
+20220603 | [OVA巨乳女戦士・土下座<span title="催眠">○○</span> ＃2](https://www.lune-soft.jp/ova/24588) | [可获取](https://sukebei.nyaa.si/view/3660317)
+20220603 | [OVA巨乳女戦士・土下座<span title="催眠">○○</span> ＃1](https://www.lune-soft.jp/ova/24566) | [可获取](https://sukebei.nyaa.si/view/3660317)
 20220527 | [ハーレム・カルト 1 side HAREM\[宇場義行\]](https://www.mediabank.co.jp/product.php?model=QNB-M105) | -
 20220527 | [<span title="援助">○○</span>交配 第六話 真面目な彼女は鬼の姫巫女](http://www.a1c.jp/~majin/product/kouhai_06.html) | -
 20220527 | [OVA異世界ヤリサー ＃2 百合カップルと人妻 男の良さ教えてやんよw](https://www.lune-soft.jp/ova/24510) | -
@@ -27,16 +30,7 @@
 20220527 | [コンビニ<span title="少女">○○</span>Z　第三話 あなた、ヤンクレママですよね。旦那に万引きがバレていいんですか？](http://www.suzukimirano.com/product/convenie_z_03.html)  | -
 20220506 | [思春期のお勉強 第2話 学ぶより経験がしたいお年頃](https://mary-jane.biz/mysite1/shouhinlist.html) | -
 
-进度可选项 `待片源` `待高压` `待翻译` `待制轴` `待校对` `待繁化` `待压制` `待发布`。
-
-
-# 已完成
-
-作品发布日 | 作品名
-| - | -
-20220617 | [オタクに優しいギャルとか、巨乳の幼なじみとか。 2 \[ふみひこ\]](https://sukebei.nyaa.si/view/3670772)
-20220603 | [OVA巨乳女戦士・土下座<span title="催眠">○○</span> ＃2](https://sukebei.nyaa.si/view/3660317)
-20220603 | [OVA巨乳女戦士・土下座<span title="催眠">○○</span> ＃1](https://sukebei.nyaa.si/view/3660317)
+进度可选项 `待片源` `待高压` `待翻译` `待制轴` `待校对` `待繁化` `待压制` `待发布` `可获取`。
 
 
 # 附赠
