@@ -30,6 +30,8 @@
 
 ## 积压作品
 
+如有遗漏欢迎在 [issues](issues) 中补充，谢谢。
+
 作品发布日 | 作品名 | 占位
 | - | - | -
 20220527 | [ハーレム・カルト 1 side HAREM\[宇場義行\]](https://www.mediabank.co.jp/product.php?model=QNB-M105) | -
@@ -56,8 +58,8 @@
 20220318 | [ひみつのきち 2 宵（よい）\[キチロク\]](https://www.mediabank.co.jp/product.php?model=QNB-M103) | -
 20220311 | [Abandon ‐100ヌキしないと出られない不思議な教室‐ 第1話 闇のSEXゲーム](https://mary-jane.biz/mysite1/shouhinlist.html) | -
 20220304 | [初めてのヒトヅマ 第4話 ビッチな女子の恋愛相談](https://mary-jane.biz/mysite1/shouhinlist.html) | -
-20220304 | [OVA ○○性指導 ＃6](https://www.lune-soft.jp/ova/24207) | -
-20220304 | [OVA ○○性指導 ＃5](https://www.lune-soft.jp/ova/24182) | -
+20220304 | [OVA <span title="催眠">○○</span>性指導 ＃6](https://www.lune-soft.jp/ova/24207) | -
+20220304 | [OVA <span title="催眠">○○</span>性指導 ＃5](https://www.lune-soft.jp/ova/24182) | -
 20220225 | [小さな蕾のその奥に…… ～無垢な指先の悪戯～](http://nur.a1c.jp/nur_brand/product/tubomi/index_tubomi_03.html) | -
 20220225 | [コンビニ<span title="少女">○○</span>Z 第二話 あなた、お茶汲み○Lですよね。会社に万引きがバレていいんですか？](http://www.suzukimirano.com/product/convenie_z_02.html) | -
 20220225 | [キミはやさしく寝取られる THE ANIMATION 第1巻](https://www.pinkpineapple.co.jp/detail.php?did=2317) | -
