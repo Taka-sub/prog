@@ -75,8 +75,7 @@
 20220128 | [やみつきフェロモン THE ANIMATION 第2巻](https://www.pinkpineapple.co.jp/detail.php?did=2307) | -
 20220128 | [やみつきフェロモン THE ANIMATION 第1巻](https://www.pinkpineapple.co.jp/detail.php?did=2305) | -
 20220128 | [うさみみボウケンタン～セクハラしながら世界を救え～ 第三話 刺激的な街にご用心！勇者のモテ期と世界の真実](http://www.a1c.jp/~majin/product/usamimi_03.html) | -
-202201
-20220128 | [OVA 巨乳エルフ母娘<span title="催眠">○○</span> ＃2 女王と姫の快楽調教。守護騎士は<span title="恥辱">○○</span>に沈む](https://www.lune-soft.jp/ova/24008)
+20220128 | [OVA 巨乳エルフ母娘<span title="催眠">○○</span> ＃2 女王と姫の快楽調教。守護騎士は<span title="恥辱">○○</span>に沈む](https://www.lune-soft.jp/ova/24008) | -
 20220128 | [OVA 巨乳エルフ母娘<span title="催眠">○○</span> ＃1 エルフの国を蹂躙する男。汚された女王と姫](https://www.lune-soft.jp/ova/23977) | -
 20211224 | [我が家のリリアナさん＆となりの家のアネットさん THE ANIMATION クライマックス メガ盛り オカズですよ](https://www.pinkpineapple.co.jp/detail.php?did=2254) | -
 20211224 | [家属～母と姉妹の嬌声～ 足裏熟女・乙葉～指示裏ハマるつちふまず～](http://www.poro.cc/product/kazoku04/petit_kazoku04_point.html) | -
