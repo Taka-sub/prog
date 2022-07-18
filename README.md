@@ -2,6 +2,16 @@
 
 发布日 | 作品名 | 制作进度
 | - | - | -:
+20220826 | [処女はお姉さまに恋してる 三つのきら星 The Animation 下巻](https://showten.info/products/anime/stap018.html) | 待片源
+20220826 | [搾精病棟 THE ANIMATION 第3巻 ～ヤマグチ編～](https://www.pinkpineapple.co.jp/detail.php?did=2342) | 待片源
+20220826 | [ツグナヒ ナマイキスポ処女・ナツキ～稚拙な屈辱～](http://www.a1c.jp/~collabo/top.html) #链接待修正 | 待片源
+20220826 | [エロ医師 ナマイキドエロ・怜奈＆綾乃～絡み貪る牝少女～](http://www.a1c.jp/~collabo/top.html) #链接待修正 | 待片源
+20220826 | [Abandon ‐100ヌキしないと出られない不思議な教室‐ 第2話 ゲームの勝者](https://mary-jane.biz/mysite1/shouhinlist.html) | 待片源
+20220826 | [鬼作 令和版](https://www.pinkpineapple.co.jp/detail.php?did=2333) | 待片源
+20220826 | [きつね娘のエッチなお宿 第一話 恩返しで新米女将!?お宿を守るエッチなサービス](http://www.a1c.jp/~collabo/top.html) #链接待修正 | 待片源
+20220805 | [僕は小さな淫魔のしもべ 第1話 家畜生活の始まり](https://mary-jane.biz/mysite1/shouhinlist.html) | 待片源
+20220805 | [OVA 聖華女学院公認竿おじさん ＃4 金髪爆乳生徒会長ルイーザ・リヒター](https://www.lune-soft.jp/ova/24751) | 待片源
+20220805 | [OVA 聖華女学院公認竿おじさん ＃3 巴と美桜と、誕生日3Pデート](https://www.lune-soft.jp/ova/24730) | 待片源
 20220729 | [同級生リメイク THE ANIMATION 第1巻](https://www.pinkpineapple.co.jp/detail.php?did=2331) | 待片源
 20220729 | [聖<span title="奴隷">○○</span>学園2 ～後編～ 剥奪された権力](https://www.mediabank.co.jp/product.php?model=GBR-027) | 待片源
 20220729 | [搾精病棟 THE ANIMATION 第2巻 ～クロカワ編～](https://www.pinkpineapple.co.jp/detail.php?did=2340) | 待片源
@@ -115,6 +125,7 @@
 - [MediaBank - Queen Bee](https://www.mediabank.co.jp/label.php?id=22)
 - [MediaBank - WHITE BEAR](https://www.mediabank.co.jp/label.php?id=9)
 - [PinkPineapple(ピンクパイナップル)](https://www.pinkpineapple.co.jp)
+- [showten(ショーテン)](https://showten.info)
 
 **不支持**
 - [A1C - PoRO Petit](http://www.poro.cc)
@@ -124,6 +135,6 @@
 - [ZIZ](http://www.ziz-entertainment.com)
 
 <!--
-["MaryJane", "LuneSoft", "PinkPineapple", "A1C", "A1C - 魔人 Petit", "A1C - 妄想専科", "A1C - collaboration works", "A1C - 2匹目のどぜう", "MediaBank", "MediaBank - WHITE BEAR", "MediaBank - GOLD BEAR", "MediaBank - HOT BEAR", "MediaBank - Queen Bee", "MediaBank - King Bee"].sort()
+["MaryJane", "LuneSoft", "PinkPineapple", "A1C", "A1C - 魔人 Petit", "A1C - 妄想専科", "A1C - collaboration works", "A1C - 2匹目のどぜう", "MediaBank", "MediaBank - WHITE BEAR", "MediaBank - GOLD BEAR", "MediaBank - HOT BEAR", "MediaBank - Queen Bee", "MediaBank - King Bee", "showten"].sort()
 ["A1C - PoRO Petit", "A1C - nur", "A1C - 鈴木みら乃", "PashminaA", "ZIZ"].sort()
 -->
