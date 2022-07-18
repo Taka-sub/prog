@@ -9,16 +9,16 @@
 20220729 | [コンビニ<span title="少女">○○</span>Z 第四話 あなた、コンビニマネですよね。本社に万引きがバレていいんですか？](http://www.suzukimirano.com/product/convenie_z_04.html) | 待片源
 20220729 | [SUMMER ～田舎の性活～ 第一話 日焼けの跡とスクール水着](http://www.a1c.jp/brandpage/mousousenka/product/summer_01.html) | 待片源
 20220722 | [ハーレム・カルト 2 side HAREM\[宇場義行\]](https://www.mediabank.co.jp/product.php?model=QNB-M108) | 待片源
-20220708 | [夏休み明けの彼女は… 前編](https://www.mediabank.co.jp/product.php?model=WBR-112) | 待片源
-20220701 | [OVA 聖華女学院公認竿おじさん ＃2 陸上少女 加藤美桜](https://www.lune-soft.jp/ova/24705) | 待片源
-20220701 | [OVA 聖華女学院公認竿おじさん ＃1 黒髪清楚お嬢様 如月巴](https://www.lune-soft.jp/ova/24660) | 待片源
-20220624 | [ツグナヒ 高飛車お姫様・瑠璃子～はじまりの痴激～](http://www.poro.cc/product/tsugunai_01/petit_tsugunai_01_point.html) | 待高压
-20220624 | [コスプレチェンジ～ピュア系女子大生の危険な性癖～ 第四話 巨乳女子大生がコスプレ七変化!?誘惑の巨乳戦士は全てお金で解決できちゃう浪花っ娘（なにわっこ）](https://www.a1c.jp/brandpage/mousousenka/product/cosplaychange_04.html) | 待高压
-20220624 | [エロ医師 清純ドエロ・綾乃～漲る好奇芯～](http://www.poro.cc/product/erodoctor_03/petit_erodoctor_03_point.html) | 待高压
-20220624 | [＃今までで一番良かったセックス THE ANIMATION 第2巻](https://www.pinkpineapple.co.jp/detail.php?did=2337) | 待高压
-20220624 | [＃今までで一番良かったセックス THE ANIMATION 第1巻](https://www.pinkpineapple.co.jp/detail.php?did=2335) | 待高压
-20220624 | [OVA パンデミック](http://mmdia.net/#widget-page-474) | 待翻译
-20220624 | [J<span title="K">〇</span>限界交尾 ～合意挿入でバチバチ肉穴化～ 第1話 性活部へようこそ](https://www.mediabank.co.jp/product.php?model=KNB-M004) | 待高压
+20220708 | [夏休み明けの彼女は… 前編](https://www.mediabank.co.jp/product.php?model=WBR-112) | [可获取](https://sukebei.nyaa.si/view/3686135)
+20220701 | [OVA 聖華女学院公認竿おじさん ＃2 陸上少女 加藤美桜](https://www.lune-soft.jp/ova/24705) | [可获取](https://sukebei.nyaa.si/view/3688203)
+20220701 | [OVA 聖華女学院公認竿おじさん ＃1 黒髪清楚お嬢様 如月巴](https://www.lune-soft.jp/ova/24660) | [可获取](https://sukebei.nyaa.si/view/3688203)
+20220624 | [ツグナヒ 高飛車お姫様・瑠璃子～はじまりの痴激～](http://www.poro.cc/product/tsugunai_01/petit_tsugunai_01_point.html) | [可获取](https://sukebei.nyaa.si/view/3681464)
+20220624 | [コスプレチェンジ～ピュア系女子大生の危険な性癖～ 第四話 巨乳女子大生がコスプレ七変化!?誘惑の巨乳戦士は全てお金で解決できちゃう浪花っ娘（なにわっこ）](https://www.a1c.jp/brandpage/mousousenka/product/cosplaychange_04.html) | [可获取](https://sukebei.nyaa.si/view/3678136)
+20220624 | [エロ医師 清純ドエロ・綾乃～漲る好奇芯～](http://www.poro.cc/product/erodoctor_03/petit_erodoctor_03_point.html) | [可获取](https://sukebei.nyaa.si/view/3680307)
+20220624 | [＃今までで一番良かったセックス THE ANIMATION 第2巻](https://www.pinkpineapple.co.jp/detail.php?did=2337) | [可获取](https://sukebei.nyaa.si/view/3676883)
+20220624 | [＃今までで一番良かったセックス THE ANIMATION 第1巻](https://www.pinkpineapple.co.jp/detail.php?did=2335) | [可获取](https://sukebei.nyaa.si/view/3676883)
+20220624 | [OVA パンデミック](http://mmdia.net/#widget-page-474) | [可获取](https://sukebei.nyaa.si/view/3675925)
+20220624 | [J<span title="K">〇</span>限界交尾 ～合意挿入でバチバチ肉穴化～ 第1話 性活部へようこそ](https://www.mediabank.co.jp/product.php?model=KNB-M004) | [可获取](https://sukebei.nyaa.si/view/3675924)
 20220617 | [オタクに優しいギャルとか、巨乳の幼なじみとか。 2 \[ふみひこ\]](https://www.mediabank.co.jp/product.php?model=QNB-M107) | [可获取](https://sukebei.nyaa.si/view/3670772)
 20220603 | [OVA巨乳女戦士・土下座<span title="催眠">○○</span> ＃2](https://www.lune-soft.jp/ova/24588) | [可获取](https://sukebei.nyaa.si/view/3660317)
 20220603 | [OVA巨乳女戦士・土下座<span title="催眠">○○</span> ＃1](https://www.lune-soft.jp/ova/24566) | [可获取](https://sukebei.nyaa.si/view/3660317)
